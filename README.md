@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **omartaka02@gmail.com**
 
-- ⚡ Fun fact **I just created GitHub🤥**
 
 <p align="left">
 </p>
